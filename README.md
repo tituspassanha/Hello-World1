@@ -8,3 +8,5 @@ Thank-you GOD for this day.
 
 Friday is the last working day of the week.
 Tomorrow is Saturday
+
+Mike Check...Mike Check
